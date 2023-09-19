@@ -8,6 +8,7 @@
 - FB: Jillian Manalo Agojo
 - IG: @bbyowshieee
 - ☎️ viber/WhatsApp: +639156264539
+- 📩 Email: jill.manalo302@gmail.com
 - 
 
 <!---
